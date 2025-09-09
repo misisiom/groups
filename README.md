@@ -18,7 +18,7 @@
 [🐦觅小秘_包养 https://t.me/baoyang_ni ](https://t.me/baoyang_ni)
 
 ### telegram广告联盟Ads，中文广告推广投放，频道变现。广告主发布，频道主接广告。联系管理@ad_kefubot
-[💎 电报中文广告联盟 https://t.me/guanggaofenfa](https://t.me/guanggaofenfa)
+[💎 电报中文广告联盟 https://t.me/Congmingmao](https://t.me/Congmingmao)
 
 ### 就是一个简单又普通的提醒你，支持telegram和ntfy同时提醒。@tixingnibot
 [✨提醒你 https://t.me/tixingnibot](https://t.me/tixingnibot)

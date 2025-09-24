@@ -20,6 +20,10 @@
 ### 聪明猫 telegram电报广告联盟Ads，中文广告推广投放，频道变现。广告主发布，频道主接广告。联系管理@ad_kefubot
 [💎 电报中文广告联盟 https://t.me/Congmingmao](https://t.me/Congmingmao)
 
+
+### 🌰保持指定内容始终置底，特别适合置底广告! 视频内容月度排行榜，月底生成用户喜爱的前10。对接广告联盟。 给消息添加按钮。我们的频道 @Mianfeide
+[🦄机器人:广告置底/视频排行榜@Mianfeidebot](https:t.me/Mianfeidebot)
+
 ### 就是一个简单又普通的提醒你，支持telegram和ntfy同时提醒。@tixingnibot
 [✨提醒你 https://t.me/tixingnibot](https://t.me/tixingnibot)
 

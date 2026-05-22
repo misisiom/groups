@@ -9,7 +9,11 @@
 
 ## 群组、频道、机器人提交收录联系 [@allgroupsofbot](https://t.me/allgroupsofbot)
   
-  
+## 报仇杀人绑架刀手杀手：净化空气 ，教训未成年霸凌者，毁容、致残残疾灭口死亡，黑皮条子照样处理，不然会更嚣张。
+[🌟 净化空气 @taodujue](https://t.me/taodujue)
+[🌟 净化空气2 @renzhaqingli](https://t.me/renzhaqingli)
+[🌟 净化空气3 @jinghuabangbang](https://t.me/jinghuabangbang)
+
 ### 💯 从娃娃开始🏆，小孩学习第二语言相对容易，轻松考过六级，交流无障碍
 [🥇监督你背诵新概念英语 @jiandunibot](https://t.me/jiandunibot)
 
@@ -21,19 +25,17 @@
 [💎 电报中文广告联盟 https://t.me/Congmingmao](https://t.me/Congmingmao)
 
 
-### 🌰保持指定内容始终置底，特别适合置底广告! 视频内容月度排行榜，月底生成用户喜爱的前10。对接广告联盟。 给消息添加按钮。我们的频道 @Mianfeide
-[🦄机器人:广告置底/视频排行榜@Mianfeidebot](https:t.me/Mianfeidebot)
 
 ### 就是一个简单又普通的提醒你，支持telegram和ntfy同时提醒。@tixingnibot
 [✨提醒你 https://t.me/tixingnibot](https://t.me/tixingnibot)
 
-### 每日更新91porn。接各种广告。公益内容免费发布。
-[🔮 极品老熟女|露脸少妇|国产人妻 https://t.me/ripron](https://t.me/ripron)
+### 电报骗子曝光
+[🔮 担保骗子套路曝光 https://t.me/pianzisiqiaoqiao](https://t.me/pianzisiqiaoqiao)
 
-[🎉鉴黄全网|母狗调教|欧美少妇 https://t.me/tiaojiaoxiaomei](https://t.me/tiaojiaoxiaomei)
+[🎉老司机搜索专用的宝藏基地 https://t.me/baozangjidi](https://t.me/baozangjidi)
 
-### 每天三次，来看不怎么爱穿衣服的美女
-[🌟 随机美女 @ranonebot](https://t.me/ranonebot)
+### x视频，每天随机69视频
+[🌟 x视频@tuishipin](https://t.me/tuishipin)
 
 ### ALL About RSS
 - 链接: https://t.me/aboutrss - 9877 位成员
